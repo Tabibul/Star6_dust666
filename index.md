@@ -1,26 +1,31 @@
-## YOU ARE MOST WELCOME...
+## Hii..  Natalie 
 
-You can Follow Me [Twitter](https://twitter.com/Star6_dust) Lets Be Friends There.
+You can Rock the COming Exam  And Also Your Prom 
 
-And Here's my [Instagram](https://www.instagram.com/spidey_tabibul/?hl=en) I hope I Will Se You There.
+#SO Dnt Take Too mcuh Strees okie ![download](https://user-images.githubusercontent.com/97729524/149513351-32bfd534-489b-4764-87e8-2fa1e289befe.jpg)
+Im Keeping Eye ON you 
 
-### Hacker's Hut
+### ANd DO not Forget to Smile (^_^) 
 
 
 ```markdown
 
-I’m born to express, not to impress.
 
-# Do or Die...There is no try.
+Keep calm and fighting for the final exam.
+
+# Study smarter, NOT HARDER
 ## you are  genius girl  
 ### you will be  Fantastic succesful women  
 - Btw im proud of you and i will be ALways you are suprb.
 
+![download](https://user-images.githubusercontent.com/97729524/149513591-6188e127-3129-492c-a1d1-2bfb0ee47de0.jpg)
 
 if you are here 
 Enjoy the cool climate.
 
-1.Thankiew  SO much AKiiiiiiii  hehe 
-this web page for you hashashs  
+GOOD LUCK FOR EXAM NEVER FORGET YOU ARE SPECIAL  
+
+### YOU R THE BEST 
   
+![download](https://user-images.githubusercontent.com/97729524/149513718-45119822-c42e-4ae7-860c-14114365b9c7.jpg)
 
