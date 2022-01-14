@@ -1,10 +1,5 @@
-## Hii..  Natalie                                                                             
- ![download](https://user-images.githubusercontent.com/97729524/149513718-45119822-c42e-4ae7-860c-14114365b9c7.jpg)
-
-
-
-
-You can Rock the COming Exam  And Also Your Prom 
+## Hii..  Natalie  ![download](https://user-images.githubusercontent.com/97729524/149513718-45119822-c42e-4ae7-860c-14114365b9c7.jpg)
+You WILL  Rock the COming Exam  And Also Your Prom 
 
 #SO Dnt Take Too mcuh Strees okie ![download](https://user-images.githubusercontent.com/97729524/149513351-32bfd534-489b-4764-87e8-2fa1e289befe.jpg)
 Im Keeping Eye ON you 
