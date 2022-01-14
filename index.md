@@ -1,38 +1,32 @@
-## Welcome to GitHub Pages
+## YOU ARE MOST WELCOME...
 
-You can use the [editor on GitHub](https://github.com/Tabibul/Star6_dust666/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+You can Follow Me [Twitter](https://twitter.com/Star6_dust) Lets Be Friends There.
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+And Here's my [Instagram](https://www.instagram.com/spidey_tabibul/?hl=en) I hope I Will Se You There.
 
-### Markdown
+### Hacker's Hut
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
 
 ```markdown
-Syntax highlighted code block
 
-# Header 1
+I’m born to express, not to impress.
+
+# Do or Die...There is no try.
 ## Header 2
 ### Header 3
 
-- Bulleted
-- List
+- , ' , ' , ' , ' , ' , ' , ' ,
+, ' , ' , ' , ' ,  ', ' , ' ,
+  ,__,____,    
+/____,_/ \  .;';';.
+ l__[]__l_ l  ,,)(,,
+
+if you are here 
+Enjoy the cool climate.
+
 
 1. Numbered
 2. List
 
 **Bold** and _Italic_ and `Code` text
 
-[https://twitter.com/Star6_dust](url) and ![![DarkNet](https://user-images.githubusercontent.com/97729524/149509218-0f4111f4-6570-4b7b-a5fa-48b847ac0175.jpg)
-](src)
-```
-
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/Tabibul/Star6_dust666/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [Go TO HELL ](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
