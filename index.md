@@ -1,13 +1,8 @@
 ## Hii..  Natalie                                                                             
-
-                                        
-                                                                                       ![download](https://user-images.githubusercontent.com/97729524/149513718-45119822-c42e-4ae7-860c-14114365b9c7.jpg)
+ ![download](https://user-images.githubusercontent.com/97729524/149513718-45119822-c42e-4ae7-860c-14114365b9c7.jpg)
 
 
 
-
-
-                                                                                                              **Chocolate XD **
 
 You can Rock the COming Exam  And Also Your Prom 
 
@@ -41,4 +36,4 @@ GOOD LUCK FOR EXAM NEVER FORGET YOU ARE SPECIAL
 ### YOU R THE BEST 
   
 bye
-
+  #### Sory if it looks messy  im new to this 
