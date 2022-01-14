@@ -19,8 +19,6 @@ I’m born to express, not to impress.
 
 if you are here 
 Enjoy the cool climate.
-![download](https://user-images.githubusercontent.com/97729524/149511869-36cdb94d-4e21-443f-8d2f-7911c3f5781d.jpg)
-
 
 1.Thankiew  SO much AKiiiiiiii  hehe 
 this web page for you hashashs  
